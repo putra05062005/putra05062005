@@ -38,8 +38,8 @@
 ---
 
 ## 📫 Let's Connect
-- 💼 LinkedIn: (isi link kamu)
-- 📧 Email: (opsional)
+- 💼 LinkedIn: (https://www.linkedin.com/in/pahala-putra-t-403915335)
+- 📧 Email: (rftkohin@gmail.com)
 
 ---
 
